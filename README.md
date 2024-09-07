@@ -1,3 +1,3 @@
 # demogit
 
-hey i am rushi
+hey i am rushi vyavahare
